@@ -118,3 +118,9 @@ a sensitive soul, I can work hard – and with my heart.
 That design is not just about beauty, but about
 empathy, stories and the courage to create
 something personal.
+
+**Thank you for your time!**
+
+Terezie Šubrtová
+tery.subrtova@seznam.cz
+terezie_subrtova
